@@ -1,5 +1,5 @@
 # 💫 About Me:
-Computer Engineering Graduate at Rizal Technological University but still learning
+🍵💻💾
 
 
 ## 🌐 Socials:
